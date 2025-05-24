@@ -112,7 +112,7 @@ To conduct a detailed analysis of Blinkit's **sales performance**, **customer sa
 ## 📬 Contact
 
 **Vivek Tandle**  
-🔗 [LinkedIn](https://www.linkedin.com/in/vivek-tandle/)
+- 🔗 LinkedIn: [https://www.linkedin.com/in/vivek-tandle](https://www.linkedin.com/in/vivek-tandle)
 
 ---
 
